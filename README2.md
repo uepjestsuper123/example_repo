@@ -1,0 +1,1 @@
+# torturowanie kuraka
